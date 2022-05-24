@@ -2,7 +2,7 @@
 
 ## Doświadczenie zawodowe
 
-09.2020 – 10.2020 (2 mies.)
+09.2020 – 10.2020 (2 mies.)\
 **Stażysta W Dziale Centrum Technologii Odlewania
 Sieć Badawcza Łukasiewicz - Krakowski Instytut Technologiczny**
 
